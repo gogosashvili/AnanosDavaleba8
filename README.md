@@ -1,0 +1,2 @@
+# AnanosDavaleba8
+QetisDavalebisKodi
